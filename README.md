@@ -1,4 +1,4 @@
 # College repo..
 
 
-![Banner](https://miro.medium.com/v2/resize:fit:1000/1*FojxppZ7GEYZ0abx-iGdZw.gif)
+![Banner](https://gifdb.com/images/high/anime-computer-guy-hacking-lmojz2zsbi6xmvz5.gif)
